@@ -1,2 +1,2 @@
-Website Link: 🩺  https://swaroopj10.github.io/Quara-HealthCare.github.io/
+Website Link: 🩺  https://swaroopj10.github.io/Quara-HealthCare/
 
